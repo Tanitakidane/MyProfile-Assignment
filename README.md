@@ -1,0 +1,2 @@
+# MyProfile-Assignment
+I am an executive pastry chef who worked at the Ritz in the Pennsylvania convention Center I've done everything from private dining to corporate functions feeling 10,000 people. As my industry became more incorporated into IT I decided that I wanted to work with food scientist and incorporate my background into this new endeavor. I'm really excited about this web development program I'believe thinking it' will give me the necessary background  to work in securities protecting secret corporate recipe  at mega corporations such as Unilever
